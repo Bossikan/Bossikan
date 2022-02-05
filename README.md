@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Bossikan
+- 👀 I’m a FiveM Script Developer since 2019
+- 🌱 My Discord Server is : https://discord.gg/8XRYr8Basx
+- 📫 How to reach me : Discord Name : Bossikan#0999
